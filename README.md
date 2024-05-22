@@ -1,1 +1,1 @@
-Tupac Shakur released multiple iconic albums in the 1990s, including "2Pacalypse Now" (1991), "Me Against the World" (1995), and "All Eyez on Me" (1996).
+The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
