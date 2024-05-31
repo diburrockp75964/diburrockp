@@ -1,1 +1,1 @@
-Tupac Shakur released multiple iconic albums in the 1990s, including "2Pacalypse Now" (1991), "Me Against the World" (1995), and "All Eyez on Me" (1996).
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
