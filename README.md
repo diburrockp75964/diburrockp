@@ -1,1 +1,1 @@
-Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
+Backstreet Boys released their album "Black & Blue" in 2000, featuring singles like "Shape of My Heart" and "The Call."
