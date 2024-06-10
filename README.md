@@ -1,1 +1,1 @@
-The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
+The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
