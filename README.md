@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
