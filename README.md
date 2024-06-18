@@ -1,1 +1,1 @@
-Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
+Britney Spears's debut single "...Baby One More Time" (1998) propelled her to superstardom and became one of the best-selling singles of all time.
