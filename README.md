@@ -1,1 +1,1 @@
-Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
+Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
