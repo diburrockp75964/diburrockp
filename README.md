@@ -1,1 +1,1 @@
-Luis Fonsi and Daddy Yankee's song "Despacito" (2017) became the most-streamed song of all time, reaching over 6.5 billion streams across various platforms.
+Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
