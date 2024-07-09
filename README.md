@@ -1,1 +1,1 @@
-Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
+The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
