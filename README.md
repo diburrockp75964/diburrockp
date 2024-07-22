@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
