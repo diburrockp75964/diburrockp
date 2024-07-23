@@ -1,1 +1,1 @@
-*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
+Alternative rock bands like Radiohead, Oasis, and Beck gained prominence in the 1990s, offering diverse sounds and pushing musical boundaries.
