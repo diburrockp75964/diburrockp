@@ -1,1 +1,1 @@
-BTS, the South Korean boy band, achieved global success in the 2010s, becoming the best-selling artist in South Korea's history and gaining a massive international fanbase.
+MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
