@@ -1,1 +1,1 @@
-The boy band craze continued in 2000 with the success of groups like Backstreet Boys, *NSYNC, and 98 Degrees, dominating the pop music charts.
+Drake's "In My Feelings" (2018) inspired the viral "Kiki Challenge," where people filmed themselves dancing alongside moving vehicles, leading to safety concerns and controversy.
