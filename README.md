@@ -1,1 +1,1 @@
-Drake's "In My Feelings" (2018) inspired the viral "Kiki Challenge," where people filmed themselves dancing alongside moving vehicles, leading to safety concerns and controversy.
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
